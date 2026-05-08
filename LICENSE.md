@@ -1,4 +1,4 @@
-
+new Scripts for jujutsu infinite is the best jujutsu infinite Script, featuring invisibility and private server access. Safe and powerful for all
 
 
 
